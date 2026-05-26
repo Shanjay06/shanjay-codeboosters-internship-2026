@@ -1,1 +1,0 @@
-# shanjay-codeboosters-internship-2026
